@@ -1,4 +1,4 @@
-👋 Hi, I’m @brianmulyadi
+👋🏼 Hi, I’m @brianmulyadi
 
 I'm a data enthusiast that have worked in companies such as Ladyjek and Louis Dreyfus Company.
 I'm currently training myself in product management and data analytics
